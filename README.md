@@ -2,9 +2,9 @@
 
 * Hell Boy
 * Pinocho
-* The form of water
+* ~The form of water~
 * Orlando (1992)
 * Tenemos que hablar de kevin
 * Solo los amantes sobreviven
 * Suspiria
-*  (mi amigo el mostruo)[https://www.cuevana2espanol.net/movies/mi-mascota-es-un-monstruo]
+* [Mi amigo el mostruo](https://www.cuevana2espanol.net/movies/mi-mascota-es-un-monstruo)
