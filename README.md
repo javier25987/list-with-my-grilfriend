@@ -7,3 +7,4 @@
 * Tenemos que hablar de kevin
 * Solo los amantes sobreviven
 * Suspiria
+*  (mi amigo el mostruo)[https://www.cuevana2espanol.net/movies/mi-mascota-es-un-monstruo]
